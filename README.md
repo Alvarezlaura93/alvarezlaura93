@@ -11,6 +11,8 @@
 
 🤔 Me gustaria encarar proyectos relacionados con la salud
 
+✎ Photoshop : intermedio-avanzado
+
 
 <!--
 **Alvarezlaura93/alvarezlaura93** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
