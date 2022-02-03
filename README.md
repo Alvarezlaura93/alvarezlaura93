@@ -13,7 +13,6 @@
 
 ✎ Photoshop : intermedio-avanzado
 
-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
 
 
 
