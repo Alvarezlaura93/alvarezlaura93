@@ -7,10 +7,6 @@
 
 📫 contacto: Laura.s.alvarez93@gmail.com
 
-⚡ Dato curioso: Estudio Lic. kinesilogia y fisiatria 
-
-🤔 Me gustaria encarar proyectos relacionados con la salud
-
 ✎ Photoshop : intermedio-avanzado
 
 
